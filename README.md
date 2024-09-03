@@ -11,3 +11,4 @@ você pode entrar em contato comigo 🧚🏻‍♀️
 pedroso.stefany@escola.pr.gov.br
 
 @stefany vitória 💜
+![](https://media.tenor.com/Jc0RiHSyLC4AAAAM/milk-mocha.gif)
